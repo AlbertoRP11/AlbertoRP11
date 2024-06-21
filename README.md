@@ -11,7 +11,7 @@
 
 - 🔗 Connect with me in **[my LinkedIn](https://www.linkedin.com/in/alberto-rp/)**
 
-- 📄 Get more information in  **[my resumé](https://drive.google.com/file/d/1mJmd3Sqziaqm2aHuf2eQi3OgnOAEbR1Q/view?usp=drive_link)**
+- 📄 Get more information in  **[my resumé](https://drive.google.com/file/d/1Q6nofMF6LN-zm_YGChwxifvCi_bBb7w3/view?usp=sharing)**
 
 - 📫 You can reach me  at **albertoperuchi11@gmail.com**
 
